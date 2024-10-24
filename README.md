@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things 
 - 🌱 I’m currently learning data science and artificial learning and machine learning
 - 💞️ I’m looking to collaborate on new projects
-- 📫 How to reach me s3319983@mail.com
+- 📫 How to reach me manusiddalingaiah24@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
